@@ -1,4 +1,8 @@
-### Hi there 👋
+### Passionate about learning and exploring. 
+
+Working towards a better world with Environmental Sustainability, EDI Advocacy, STEM Education, and Technology!
+
+UNB Bachelors in Computer Science and Earth Sciences 2023
 
 <!--
 **TeaFaz/TeaFaz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
