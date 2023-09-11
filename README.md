@@ -1,4 +1,4 @@
-### Passionate about learning and exploring. 
+### Passionate about learning and exploring!
 
 Working towards a better world with Environmental Sustainability, EDI Advocacy, STEM Education, and Technology!
 
